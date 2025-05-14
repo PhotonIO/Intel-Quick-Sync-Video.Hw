@@ -1,0 +1,1 @@
+- https://www.google.com/search?q=intel+Quick+Sync+av1+support
